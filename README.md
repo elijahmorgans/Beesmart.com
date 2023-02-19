@@ -1,2 +1,0 @@
-# Beesmart.com
-motivational speakers
